@@ -1,4 +1,4 @@
-![IBERMEGA](https://ibermega.com/wp-content/themes/ibermega/images/frontpage/programacion-inteligente.webp)
+![IBERMEGA](https://ibermega.com/wp-content/uploads/2020/09/ibermega-facebook.jpg)
 
 **IBERMEGA is expanding!**
 
