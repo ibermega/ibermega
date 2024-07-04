@@ -1,5 +1,5 @@
 ![IBERMEGA](https://ibermega.com/wp-content/themes/ibermega/images/frontpage/programacion-inteligente.webp)
 
-**IBERMREGA is Hiring!**
+**IBERMEGA is expanding!**
 
-Shape the future of commerce. [Come join us!](https://ibermega.com)
+On-Page SEO technical solutions. [Come join us!](https://ibermega.com)
